@@ -5,7 +5,7 @@ To obtain a Summer 2021 internship in order to demonstrate my strong communicati
 
 #### EDUCATION
 **University of Georgia** (Athens, GA)
-**Bachelor of Science in Family and Consumer Sciences** (May 2024)
+**Bachelor of Science in Family and Consumer Sciences** (May 2024) <br/>
 **Major:** Consumer Economics; **Minor:** Food Science
 
 #### WORK & OTHER EXPERIENCE
